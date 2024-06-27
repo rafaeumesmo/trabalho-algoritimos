@@ -1,3 +1,4 @@
+<img src="imagem_2024-06-27_172833136.png">
 # Coffe love
 
 Em uma pequena cozinha, onde os aromas se misturam com sussurros, vivia Cafe, um jovem de aroma envolvente que escondia um fardo invisivel por tras de sua 
